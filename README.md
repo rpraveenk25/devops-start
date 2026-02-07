@@ -1,3 +1,1 @@
-my devops journey from now
-one more line
-second one
+practice again froms scratch and refresh basics
