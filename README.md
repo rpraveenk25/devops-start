@@ -1,1 +1,1 @@
-practice again froms scratch and refresh basics
+practice again from scratch and refresh basics
